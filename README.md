@@ -1,2 +1,1 @@
 nama saya arna
-jhuneininvinewi
